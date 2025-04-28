@@ -1,2 +1,2 @@
 ## Wsg gang,,,
-uhmm this is a wip so stay tuned... heh.. 😈
+Still a wip but I'm the first ever canon xenophanes kinnie since like 2022
