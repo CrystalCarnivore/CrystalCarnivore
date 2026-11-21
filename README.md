@@ -2,7 +2,7 @@
 </h1>
 <img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/c765b09e-00fb-460f-bcb6-8c0d5eb18a1d" />
 
-
+<img src="https://github.com/CrystalCarnivore/CrystalCarnivore/blob/38d220060d70d464fc8fe7a38606450c1ec8600a/IMG_3943.png">
 
 <p align="left"> ℭ𝔞𝔩𝔩 𝔪𝔢 𝔵𝔢𝔫 𝔬𝔯 𝔦𝔫𝔡𝔦𝔤𝔬. :}
 
